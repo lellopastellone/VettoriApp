@@ -1,1 +1,1 @@
-appena ho tempo lo commenterò.
+appena avrò tempo lo commenterò.
